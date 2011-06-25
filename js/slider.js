@@ -1,1 +1,0 @@
-tady bude nejakej script
